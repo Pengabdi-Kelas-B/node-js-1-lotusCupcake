@@ -1,0 +1,1 @@
+Jaga pola makan, rajin berolahraga serta istirahat yang cukup
